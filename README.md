@@ -4,6 +4,8 @@ It's me, Deepak. you've probably never heard of me. And I've never thought of wr
 
 Stay tuned for more projects.
 
+If you like my project, give a huge kick on the Star.
+
 Reach me @ deepakburra84@gmail.com
 
             -Have a nice day :)
